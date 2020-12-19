@@ -1,0 +1,1 @@
+Poshto riba Skuter tehno
